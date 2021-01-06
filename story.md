@@ -1,0 +1,1 @@
+A new caterpillar was created. However, it was very hungary all the time. On Monday, it ate one apple. On Tuesday, it ate two more fruits. This kept going until Saturday when it let loose and ate anything such as chocolate cake, ice cream, cheese, etc. This led to a severe headache which the caterpillar suffered throughout Sunday. 
